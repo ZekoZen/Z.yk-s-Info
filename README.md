@@ -2,4 +2,8 @@
 
 ꒰📁::Fandoms — Alien Stage & Cookie Run Kingdom,,,⁠꒱
 
-(More coming soonT_T,,,)
+꒰🍨::Fav Food — Ice cream/Cake/Yogurt/Candies/,,,⁠꒱
+
+꒰🍏:: Likes — My Besties/Socializing/Sleeping/Drawing/,,,⁠꒱
+
+꒰🍎:: Dislike — Anything problematic or annoying atp,,,⁠꒱
